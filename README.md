@@ -7,4 +7,4 @@ im rlly big into roblox and also like fish asnd cats a lot
 
 my friends arecool!! yes
 
-fandomsim in: roblox args, roblox myths, phighting, trud, hjd, oor, save robloxia, dod, etc (iforgot some)
+interests: roblox args, roblox myths, frozen soul, trud, hjd, oor, dod, biast, etc
