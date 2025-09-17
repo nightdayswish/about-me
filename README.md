@@ -7,6 +7,6 @@ im rlly big into roblox and also like fish asnd cats a lot
 
 my friends arecool!! yes
 
-interests: roblox args, roblox myths, frozen soul, trud, hjd, oor, dod, biast, etc
+interests: roblox args, roblox myths, phighting, frozen soul, trud, hjd, oor, dod, biast, etc
 
 imhyperfixated on roblox and also roblox admins n exploitersya ok. i rlly liek roblo.x.
