@@ -7,6 +7,4 @@ im RLLYYY big into roblox. imhyperfixated on roblox ok. i rlly liek roblo.x .and
 
 fandoms: (roblox) args, roblox myths, roblox admins, ocean terror, may madness 2012, april fools incident 2012, hello john doe, the robloxia until dawn, phighting, frozen soul, outlaws of robloxia, block tales, grace, die of death, break in and steal thingz, get a snack at 4 am, happy home with happy people, five nights at freddys, etc... theres a lot more im too lazy to list everything i like roblox too much
 
-bands i like cuz why not: my chemical romance, pierce the veil, green day, limp bizkit, metallica, etc... theres more ya... ok... gulp
-
 goopert and jacob ur rlly cool ya ok. thats all i think
